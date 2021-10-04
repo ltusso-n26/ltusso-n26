@@ -1,4 +1,4 @@
- 👋 Hi, I’m Leo tusso 
+ 👋 Hi, I’m Leo  
 
 
 <!---
